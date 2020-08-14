@@ -1,1 +1,1 @@
-![](/brandon-2.gif)
+![](https://media.giphy.com/media/kDfNJbcvvzteIIYhta/giphy.gif)
