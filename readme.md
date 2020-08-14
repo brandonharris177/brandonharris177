@@ -1,2 +1,1 @@
-![](/brandon-2.gif
-)
+![](/brandon-2.gif)
