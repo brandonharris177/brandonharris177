@@ -1,4 +1,4 @@
-![Brandon](./Brandon-2.gif)
+![](./Brandon-2.gif)
 
 <!--
 **brandonharris177/brandonharris177** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
